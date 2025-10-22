@@ -3,7 +3,7 @@ Aplikasi e-Commerce Progresif Website Batik Batam
 
 Link RPP : https://docs.google.com/document/d/1vRqMQF8HTPzDYhRLJc1XkSVJl7eqN728SovRKdyIHBc/edit?usp=sharing
 
-Link Laporan : https://docs.google.com/document/d/1C4VO4wlxQuMaTRjNnuamc3Lx__MoIcig_aqPqhcX-mQ/edit?usp=sharing
+Link Laporan : https://docs.google.com/document/d/1d-dGvjMq5lruTit0pmIRYeDdDoM0HaxlPTUD3NcZYfg/edit?tab=t.0
 
 Link PPT : https://www.canva.com/design/DAG1M8VqLUY/hz9vLMXdqk4H1sOgYGrAEg/edit?utm_content=DAG1M8VqLUY&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
